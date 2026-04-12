@@ -4,7 +4,7 @@
 > Confidence is a muscle memory.
 
 1. YouCan
-2. DoiT
+2. DoiT, keep going
 3. Don't stop 
 4. We started today
 5. We'll continue tomorrow
